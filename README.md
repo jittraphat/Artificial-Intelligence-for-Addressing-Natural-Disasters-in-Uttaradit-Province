@@ -1,0 +1,1 @@
+# Artificial-Intelligence-for-Addressing-Natural-Disasters-in-Uttaradit-Province
